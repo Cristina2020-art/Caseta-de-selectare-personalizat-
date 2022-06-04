@@ -1,0 +1,1 @@
+# Caseta-de-selectare-personalizat-
